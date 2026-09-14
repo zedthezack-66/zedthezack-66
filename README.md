@@ -8,4 +8,4 @@
 
 - 📫 How to reach me: CONTACT +260976691262  or email me at znyangulu2@gmail.com.
    
-- ⚡ Fun fact: My boys and I once designed a city simulation AI agent that competed with human planners—and it won!  
+
